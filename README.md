@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MichaelPapagni
+- 👀 I’m interested in math
+- 🌱 I’m currently learning math
+- 📫 How to reach me mfpapagni@gmail.com
+- 😄 Pronouns: he/him
